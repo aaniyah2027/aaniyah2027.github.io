@@ -1,5 +1,7 @@
 # Aaniyah Allen
 
+![Aaniyah's Profile Photo](img/aaniyah_allen.jpeg)
+
 I am a senior at Fort Valley State University.  
 I am majoring in Criminal Justice and minoring in Cybersecurity.  
 
