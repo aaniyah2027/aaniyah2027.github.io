@@ -5,6 +5,6 @@ I am majoring in Criminal Justice and minoring in Cybersecurity.
 
 
 
-* aallen79@wildcat.fvsu
-* aaniyahallen3@gmail.com
-* AaniyahAllenlinkedin.com
+* [School Email](aallen79@wildcat.fvsu)
+* [Personal email](aaniyahallen3@gmail.com)
+* [LinkedIn](https://www.linkedin.com/in/aaniyah-allen-39221b34b/)
